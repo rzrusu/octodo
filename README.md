@@ -1,4 +1,4 @@
-![Octodo](https://i.imgur.com/v4Wmwd9.png)
+![Octodo](https://i.imgur.com/nXLy2c3.png)
 ======================
 
 # About
